@@ -1,4 +1,4 @@
-# Valimorica
+# Valimórica
 Valimórica España Manual de Decisiones 2026
 ## Valimórica España Manual de Decisiones 2026: cómo detectar fricción antes de que se convierta en retrasos operativos
 
